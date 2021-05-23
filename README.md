@@ -1,2 +1,2 @@
 20213062 Lee Chanwoo
-Kookmin Univ. SW
+Kookmin Univ. SW dept.
